@@ -1,4 +1,4 @@
-# 
+# rare Vegas Pro for PC | Vegas Pro for Windows Preset | export-presets + proxy-editing offers the most advanced Vegas Pro for PC | Vegas Pro for Windows preset, with export-presets
 
 
 
